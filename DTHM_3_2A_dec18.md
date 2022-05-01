@@ -1,4 +1,4 @@
-﻿Internal assessment resource Digital Technologies 3.2A V1 for Achievement Standard 91901
+## Internal assessment resource Digital Technologies 3.2A V1 for Achievement Standard 91901
 
 PAGE FOR TEACHER USE
 
